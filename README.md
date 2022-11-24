@@ -31,6 +31,8 @@ Kaldereta or caldereta is a goat meat stew from the Philippines. Variations of t
 - tomato paste
 
 ### *How to cook Caldereta?*
-1. 	Simmer beef in water with bay leaves until tender. Strain beef and reserve broth. (2.5hours) 
-2. 	Sauté potato and carrot in oil until golden brown. Strain and set aside. (10mins)
-3. 
+1. 	Simmer the goat meat for 2 hours until tender.
+2. 	Fry the meat in cooking oil. Add onions and sauté until tender.
+3.  Pour in tomato sauce and meat. Add red and green peppers and a bay leaf. Cover and simmer until meat is tender.
+4.  Blend in the liver spread and Cheese cubes. Cook for 5 minutes.
+5.  Serve and enjoy your Caldereta.
